@@ -3,7 +3,3 @@
   <a href="https://open.spotify.com/user/xcmshm97r9pxe1odsisnqugr6" target"blank_"><img src="https://img.shields.io/badge/-Twitter-%2300acee?&style=for-the-badge&logo=twitter&logoColor=white"></a>
   <a href="https://github.com/tanechance" target"blank_"><img src="https://img.shields.io/badge/GitHub%20-191717.svg?&style=for-the-badge&logo=github&logoColor=white"></a>
 </p>
-
-<p align="center">
-  <img src="https://github-readme-stats.vercel.app/api?username=iiAlosha&count_private=true&show_icons=true&theme=purple&hide_border=true" width="%100" height="150px" alt="stats" />
-</p>
