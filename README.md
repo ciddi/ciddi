@@ -1,6 +1,6 @@
 ### hayatim bitmiss
 
-[<img align="left" alt="ciddi | Twitch" width="400px" src="https://cdn.discordapp.com/attachments/290892952736235520/821867585481343017/ca3ffa6023a19119a16b7ed675b2b3ed.gif"]
+![check dusty](https://cdn.discordapp.com/attachments/290892952736235520/821867585481343017/ca3ffa6023a19119a16b7ed675b2b3ed.gif)
 
 ### Ulasmak istiyorsan buradalar:
 
