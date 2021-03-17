@@ -1,6 +1,6 @@
 ### hayatim bitmiss
 
-![check dusty](https://cdn.discordapp.com/attachments/290892952736235520/821867585481343017/ca3ffa6023a19119a16b7ed675b2b3ed.gif)
+![check dusty](https://cdn.discordapp.com/attachments/290892952736235520/821869303501553664/tenor_1.gif)
 
 ### Ulasmak istiyorsan buradalar:
 
