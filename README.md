@@ -1,6 +1,8 @@
 ### hayatim bitmiss
 
-### Ulasmak istiyorsan burdalar:
+https://cdn.discordapp.com/attachments/290892952736235520/821867585481343017/ca3ffa6023a19119a16b7ed675b2b3ed.gif
+
+### Ulasmak istiyorsan buradalar:
 
 [<img align="left" alt="ciddi | Twitch" width="22px" src="https://cdn.jsdelivr.net/npm/simple-icons@v3/icons/twitch.svg" />][website]
 [<img align="left" alt="ciddi | Spotify" width="22px" src="https://cdn.jsdelivr.net/npm/simple-icons@v3/icons/spotify.svg" />][youtube]
