@@ -1,4 +1,4 @@
-### hayatim bitmis
+### baska bir yer varsa orada tekrar gorusuruz belki yoksa da seni tanimak benim cennetimdi zaten
 
 ![check dusty](https://cdn.discordapp.com/attachments/290892952736235520/821869303501553664/tenor_1.gif)
 
