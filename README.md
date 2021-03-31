@@ -1,6 +1,6 @@
 ### baska bir yer varsa orada tekrar gorusuruz belki yoksa da seni tanimak benim cennetimdi zaten
 
-![check dusty](https://cdn.discordapp.com/attachments/290892952736235520/826911527705116742/b20400a85a7970eada781b8e2190e611.jpg)
+![31](https://cdn.discordapp.com/attachments/290892952736235520/826912264535670804/15a75c3593f3bf9b3c3889cd0b6f0b7b.png)
 
 ### Ulasmak istiyorsan buradalar:
 
