@@ -1,6 +1,6 @@
-### baska bir yer varsa orada tekrar gorusuruz belki yoksa da seni tanimak benim cennetimdi zaten
+### bu profilin sahibi cok uzgun oldugu icin ruhsal yoldan ölmüstür.
 
-![31](https://cdn.discordapp.com/attachments/290892952736235520/826912264535670804/15a75c3593f3bf9b3c3889cd0b6f0b7b.png)
+![31](https://pbs.twimg.com/profile_banners/1077801215222792192/1617578811/600x200)
 
 ### Ulasmak istiyorsan buradalar:
 
