@@ -1,4 +1,4 @@
-### bu profilin sahibi cok uzgun oldugu icin ruhsal yoldan ölmüstür.
+### bazen kaybediyorum ama olsun deniyorum birseyler
 
 ![31](https://pbs.twimg.com/profile_banners/1077801215222792192/1617578811/600x200)
 
