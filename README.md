@@ -1,6 +1,6 @@
 ### bazen kaybediyorum ama olsun deniyorum birseyler
 
-![31](https://pbs.twimg.com/profile_banners/1077801215222792192/1617578811/600x200)
+![31](https://i.pinimg.com/originals/a8/4f/c4/a84fc414c57fd1ed73e2f20c476c2ce0.gif)
 
 ### Ulasmak istiyorsan buradalar:
 
