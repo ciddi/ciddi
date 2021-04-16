@@ -1,6 +1,6 @@
 ### bazen kaybediyorum ama olsun deniyorum birseyler
 
-![31](https://i.pinimg.com/originals/a8/4f/c4/a84fc414c57fd1ed73e2f20c476c2ce0.gif)
+![31](https://tr.bloggif.com/output/b/f/bfc26d528ffca9cf584c08c2903dd322.gif?1618594105)
 
 ### Ulasmak istiyorsan buradalar:
 
