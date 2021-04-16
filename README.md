@@ -2,7 +2,7 @@
 
 ![31](https://tr.bloggif.com/output/b/f/bfc26d528ffca9cf584c08c2903dd322.gif?1618594105)
 
-### Ulasmak istiyorsan buradalar:
+### for contact
 
 [<img align="left" alt="ciddi | Twitch" width="22px" src="https://cdn.jsdelivr.net/npm/simple-icons@v3/icons/twitch.svg" />][website]
 [<img align="left" alt="ciddi | Spotify" width="22px" src="https://cdn.jsdelivr.net/npm/simple-icons@v3/icons/spotify.svg" />][youtube]
