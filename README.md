@@ -1,6 +1,6 @@
 ### Hello, I am Tanec, I try coding stuff here.
 
-![31](https://gifyu.com/image/tbsg)
+![31](https://s4.gifyu.com/images/undertale_text_box-1.gif)
 
 ### for contact
 
