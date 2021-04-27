@@ -7,7 +7,7 @@
 [<img align="left" alt="ciddi | Twitter" width="22px" src="https://cdn.jsdelivr.net/npm/simple-icons@v3/icons/twitter.svg" />][twitter]
 [<img align="left" alt="ciddi | Discord" width="22px" src="https://cdn.jsdelivr.net/npm/simple-icons@v3/icons/discord.svg" />][instagram]
 
-[twitter]: https://twitter.com/taneciddi
+[twitter]: https://twitter.com/tanechance
 [youtube]: https://sptfy.com/tanec
 [instagram]: https://discord.com/users/272071349340602370
-[website]: https://www.twitch.tv/taneciddi
+[website]: https://www.twitch.tv/tvnec
